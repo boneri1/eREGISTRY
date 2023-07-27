@@ -1,2 +1,0 @@
-# JEAN_JAID
-Projects
